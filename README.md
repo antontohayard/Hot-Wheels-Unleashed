@@ -239,3 +239,6 @@ Hot Wheels Unleashed is the complete free version, providing all features and up
 ---
 
 Don’t wait any longer! Download **Hot Wheels Unleashed** now and race your way to victory!
+
+---
+**Last updated:** 2026-09-13 19:10:38 UTC
